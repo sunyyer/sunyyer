@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sunyyer
-- 👀 I’m interested in safety engineering
+- 👀 I’m interested about cool things
 - 🌱 I’m currently learning Web safety
 - 💞️ time flies
 - 📫 Wish each of us can live up to the time!
