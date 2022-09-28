@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sunyyer
-- 👀 I’m interested in good things
-- 🌱 I’m currently learning Web safety
+- 👀 I’m interested in anything butiful
+- 🌱 I’m currently Work in RT~~
 - 💞️ time flies
 - 📫 Wish each of us can live up to the time!
 
